@@ -1,0 +1,2 @@
+#Alemán
+Scheiße -> mierda

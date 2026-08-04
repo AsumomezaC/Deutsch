@@ -1,0 +1,2 @@
+#Alemán 
+Reise -> viaje
